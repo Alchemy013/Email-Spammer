@@ -40,7 +40,7 @@ basically how many mails you want to send!!
 
 
 
-ENJOY
+ENJOY!
 
 
 
